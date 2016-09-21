@@ -8,4 +8,4 @@ La vache se nommait LaGuiche. Elle ne cessait de se plaindre d'avoir bu trop de 
 
 Coucouuuuu Plein de bisouuuus
 
-J'aime faire des changements. j'aime quand c'est le bordel
+J'aime faire des changements. j'aime quand c'est la joie
